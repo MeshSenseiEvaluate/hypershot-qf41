@@ -1,4 +1,4 @@
-# 
+# secure Script for hypershot is the best hypershot Script, featuring unlimited stamina and aimbot. Safe and powerful for all your needs.
 
 
 
